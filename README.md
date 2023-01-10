@@ -1,0 +1,1 @@
+# AltSchool-Technical-Write-Up
